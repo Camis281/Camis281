@@ -14,8 +14,6 @@
  
 </div>
  
-<br>
- 
 ### Minhas redes sociais são:
  
 <div> 
